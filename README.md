@@ -1,1 +1,0 @@
-# suicide-data-analysis
